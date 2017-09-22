@@ -3,7 +3,7 @@ Fotografía por [Armando Simonin](https://www.flickr.com/photos/armandosimonin/)
 
 
 
-# \#SISMOMX - Equipo de Tecnología Humanitaria de Codeando México
+# \#SISMOMX - Equipo de Tecnología Humanitaria de Codeando México.
 
 En septiembre 2017 sismos afectaron a diferentes partes de México.
 
